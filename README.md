@@ -13,3 +13,12 @@
 ![image](https://user-images.githubusercontent.com/60132750/126382010-86aa895c-afd5-475b-a1c5-9985eb76feb7.png)
 
 ![image](https://user-images.githubusercontent.com/60132750/126478470-d4cd6d78-e991-4969-a2b0-0268e14baf40.png)
+
+![image](https://user-images.githubusercontent.com/60132750/126478587-abff88d4-85aa-4453-8772-af160d60fb8a.png)
+
+![image](https://user-images.githubusercontent.com/60132750/126478674-94212c6e-70b1-4ba9-9de3-8f5a6f79d906.png)
+
+![image](https://user-images.githubusercontent.com/60132750/126478781-ceae6b51-9285-4137-b6bc-8790aa2ef20a.png)
+דוגמא לפני הנחה +דוגמא אחרי
+![image](https://user-images.githubusercontent.com/60132750/126478836-71c8b7d6-58d4-43d7-abaa-209f731ce964.png)
+
